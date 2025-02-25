@@ -1,1 +1,1 @@
-WHo read this is gay
+dit me Nam Ky cho
